@@ -12,4 +12,4 @@ Kenapa Nudigie?
 Desain unik dan stylish terinspirasi dari Surabaya
 Bahan berkualitas tinggi, nyaman dipakai
 Mendukung brand lokal dan identitas budaya
-Harga terjangka
+Harga terjangkau
